@@ -13,8 +13,6 @@
 - 📫 How to reach me **nehabhandare2278@gmail.com**
 
 - ⚡ More about Me **I am a positive person with a mind set that everything happens for the good and each problem has a solution, Never to give up on things .**
-- <br>
-- <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=harshada1104" alt="harshada1104" /></a> </p>
 
 
 <h3 align="left">Connect with me:</h3>
