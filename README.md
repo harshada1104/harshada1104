@@ -12,7 +12,8 @@
 
 - 📫 How to reach me **nehabhandare2278@gmail.com**
 
-- ⚡ More about Me **I am a positive person with a mind set that everything happens for the good and each problem has a solution, Never to give up on things .**
+- ⚡ More about Me **I am a positive person with a mind set that everything happens for the good and each problem has a solution, Never to give up on things . Always look for the solution if one door closes there are other options too
+**
 
 
 <h3 align="left">Connect with me:</h3>
